@@ -1,1 +1,1 @@
-# BelHard
+# BelHard French is my favorite lang
